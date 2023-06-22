@@ -2,7 +2,7 @@
 
 title: 'THE INCURABLE WORLD'
 
-date: '2023-06-13'
+date: '2023-06-22'
 
 tags: ['quietTime', 'dagHewardMills']
 
