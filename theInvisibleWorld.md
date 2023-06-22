@@ -1,6 +1,6 @@
 ---
 
-title: 'THE INCURABLE WORLD'
+title: 'THE INVISIBLE WORLD'
 
 date: '2023-06-22'
 
