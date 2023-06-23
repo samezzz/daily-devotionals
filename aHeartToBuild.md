@@ -1,0 +1,29 @@
+---
+
+title: 'A HEART TO BUILD'
+
+date: '2023-06-23'
+
+tags: ['quietTime', 'dagHewardMills']
+
+---
+
+**READ: Matthew 16:13-20**
+
+>And Solomon sent to Huram the king of Tyre, saying, ... Behold, I build an house to the name of the Lord my God, to dedicate it to him, and to burn before him sweet incense, ...AND THE HOUSE WHICH I BUILD IS GREAT: FOR GREAT IS OUR GOD ABOVE ALL GODS. 
+
+*2 Chronicles 2:1-5*
+
+Solomon made great works. Solomon built a house for God. He said, “The house which I build is great!” He 
+
+gathered great stones from Tyre to build the foundation of the house of God. He was truly doing a great work with great stones. These great stones were used to build a great house for God. What a great accomplishment that was! Up till today, we speak of the great temple that Solomon built. It was truly a great effort by the young man to honour his God. 
+
+What about you? Are you going to attempt something great for God? Are you going to attempt to build a church in your lifetime? Whenever you build the church you are building a great thing.
+
+Jesus said, “I must be about my Father’s business.” (Luke 2:49). His business was to build his Father’s house (Matthew 16:18). God wants a house for His people. The church is what God is building. Instead of building mansions you will never use, why not build the church of God? Decide to be a part of those who value the church of God. 
+
+Be like King David! David attempted to build a church for God and it really touched the Lord’s heart. David never actually built the church but he was rewarded for attempting to do so. This is all that God wants from you; a heart to build his church. 
+
+>And IT WAS IN THE HEART OF DAVID MY FATHER TO BUILD AN HOUSE FOR THE NAME OF THE LORD God of Israel. And the Lord said unto David my father, Whereas it was in thine heart to build an house unto my name, thou didst well that it was in thine heart. Nevertheless thou shalt not build the house; but thy son that shall come forth out of thy loins, he shall build the house unto my name. 
+
+*1 Kings 8:17-19*
