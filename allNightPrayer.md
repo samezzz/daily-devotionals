@@ -1,0 +1,23 @@
+---
+
+title: 'ALL NIGHT PRAYER'
+
+date: '2023-06-25'
+
+tags: ['quietTime', 'dagHewardMills']
+
+---
+
+**READ: Luke 6:12-19**
+
+>And it came to pass in those days, that he went out into a mountain to pray, and continued all night in prayer to God. 
+
+*Luke 6:12*
+
+Praying in the night is important because Jesus did it. Jesus is teaching us how to pray to the Father whom we have never seen. Jesus was with the Father in heaven. Jesus was in heaven listening to the prayers of human beings. Jesus knew the responses of the Father to every single prayer. Jesus knew how the Father thought. Jesus knew what would work. Jesus knew how to pray. 
+
+Jesus knew how to get prayers answered better than anybody else. Our best bet is to follow the prayer lifestyle of Jesus. 
+
+Jesus Christ prayed in the night. He prayed all night long. Why did He pray all night long? He prayed all night because night prayers are uninterrupted prayers. In the night, you will not be disturbed by most human activities. Most people sleep at night. And also, night prayers are long prayers. Night prayers can go on for much longer than prayers in the day. Many prayers during the day have to be short because there are many other things that need to be taken care of. And finally, night prayers deal with the powers of darkness.
+
+Learn to pray all night just because Jesus prayed all night. Jesus never explained why He prayed all night. We do not need Him to explain why He prayed all night. The fact that He prayed all night is a good enough reason for us to pray all night! 
